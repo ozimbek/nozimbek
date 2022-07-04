@@ -1,0 +1,2 @@
+# nozimbek
+fyidrjyhsoisxztgjhgjg
